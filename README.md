@@ -1,2 +1,2 @@
 # swieczka
-rodzaje świeczek w naszej sprzedaży
+rodzaje świeczek w naszej sprzedaży :)
